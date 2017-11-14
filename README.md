@@ -1,2 +1,3 @@
 # hello-world
-Just another repositore
+Kiromi Sugimoto
+I have lapki
